@@ -1,4 +1,3 @@
-# tugas-1000
 # Tugas-3-Riyan-Judwika
 Nama  : I Kadek Riyan Judwika Putra
 
